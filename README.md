@@ -8,4 +8,4 @@
 * 💻 HTML, JS and Python programmer (still learning how to code)
 
 ## 📫 Contact me
-* Discord: Magestick#5262
+* Discord: Eternal Light#5262
